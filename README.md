@@ -19,3 +19,4 @@
 2019년 가을 [컴백전쟁: 퀸덤](https://namu.wiki/w/%EC%BB%B4%EB%B0%B1%EC%A0%84%EC%9F%81:%20%ED%80%B8%EB%8D%A4 "컴백전쟁: 퀸덤")에서 위의 특색들이 빛을 발했다. 특히 2차 경연에서 선보인 <[Destiny (나의 지구)](https://namu.wiki/w/Destiny%20(%EB%82%98%EC%9D%98%20%EC%A7%80%EA%B5%AC) "Destiny (나의 지구)")>와 3차 경연의 <Twilight> 무대가 상당한 화제를 모았다. 일상과 판타지를 넘나드는 특유의 몽환적인 콘셉트, 양질의 퍼포먼스 및 탄탄한 라이브로 무장한 오마이걸의 프로페셔널한 무대가 [유튜브](https://namu.wiki/w/%EC%9C%A0%ED%8A%9C%EB%B8%8C "유튜브")를 통해 해외 팬들에게도 선보여졌고, 이를 본 해외 팬들은 **'Fairy Crush**' 라는 수식을 붙여가며 호평했다. [allkpop 기사](https://www.allkpop.com/article/2019/09/oh-my-girl-brings-out-the-fairy-crush-concept-with-their-rendition-of-lovelyz-destiny "https://www.allkpop.com/article/2019/09/oh-my-girl-brings-out-the-fairy-crush-concept-with-their-rendition-of-lovelyz-destiny")
 
 
+##추가추가추가!!
